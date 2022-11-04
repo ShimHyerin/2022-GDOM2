@@ -1,1 +1,11 @@
 
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/01.jpg)
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/02.gif)
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/03.gif)
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/04.gif)
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/05.gif)
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/06.gif)
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/07.gif)
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/08.gif)
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/09.gif)
+![img](https://github.com/ShimHyerin/2022-GDOM2/blob/main/ProjA/%EB%B0%9C%ED%91%9C/10.jpg)
